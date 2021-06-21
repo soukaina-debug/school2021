@@ -23,25 +23,5 @@ Thank you so much for the sessions, really helped a lot, my concepts have been s
 and a little less scary for a self taugh novice! Also, thank you for making the lectures and materials open for everyone. 
 Thank you, thank you, thank you...Stay safe and take care. :) Aishrila Mazumder
 
-* Thank you for organizing such a well-planned school. The sessions had a nice flow of ideas and were super fun;
-I never felt lost. It was a great learning experience. Thanks for introducing me to some witchcraft:upside_down_face:! - Devansh Shukla
-* It is really awesome that you made this lot of material accessible to us, together with the experience of so many great tutors.Thank you so much, see you soon!
-* Thank you for your amazing lectures and feedbacks and thank you for being so supportive! Greetings from Argentina! 🇦🇷
+I have never been a student in a Summer School,so i was so excited to try a new experience.I can confess that,it was such a good experience,it was a perfect opportunity for me to get through some deep topics in the IT's field.I wanna thank every teacher,doctor and participant during this perfect experience. SOUKAINA FATTAH
 
-* Great summer school and very well organized! I have learned a lot! Thank you all, Ana Karla Diaz Rodriguez
-* I assumed that only regular education would result in a significant shift in knowledge. But here I am, after this summer school, become smitten with data science. Thank you to all of the tutors and the organizers! Feven Markos Hunde
-
-* What a great school! Well organised, helpful tutors and friendly environment. I learned so much, and will keep using the skills gained here for a long time. Thanks everyone! Michael Sarkis 
-
-* I am approaching the end of the first year of my PhD in astrophysics. I only started to teach 
-  my self python in order to carry out astrophysical research. However, after this school, I feel 
-  an obsession growing for coding itself. I look forward to being able to contribute to great 
-  projects. Im also keen to start writing elegant scripts in Julia with the advantages of 
-  subscripting, using sybomls etc... Thank you to everyone who delivered this school! 
-  - Zachary Jennings. 
-
-* i learned soo much, and i made some new friends tooo thank you so much . khadija ech-challaouy 
-
-* *A great summer school I was pleased to participate in. Very complete in topics covered and essential to gain skills that in high demand today. Accessibility of the school lectures and materials after the school is over makes it even better. Thanks a lot to outstanding lecturers and organizers for their great efforts and well organization.* - Mukharbek Organokov
-
-* This was my first experience in a summer school, and it was incredible! I'll definitely be using all the skills I learned here. Kudos to the organization team and all the tutors, I really felt immersed and involved with the subjects thanks to all the resources at our disposal. Keep up the incredible work! - Gabe Schneider
