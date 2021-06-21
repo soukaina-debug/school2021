@@ -45,3 +45,6 @@ I never felt lost. It was a great learning experience. Thanks for introducing me
 * *A great summer school I was pleased to participate in. Very complete in topics covered and essential to gain skills that in high demand today. Accessibility of the school lectures and materials after the school is over makes it even better. Thanks a lot to outstanding lecturers and organizers for their great efforts and well organization.* - Mukharbek Organokov
 
 * This was my first experience in a summer school, and it was incredible! I'll definitely be using all the skills I learned here. Kudos to the organization team and all the tutors, I really felt immersed and involved with the subjects thanks to all the resources at our disposal. Keep up the incredible work! - Gabe Schneider
+
+
+*I have never been a student in a Summer School,so i was so excited to try a new experience.I can confess that,it was such a good experience,it was a perfect opportunity for me to get through some deep topics in the IT's field.I wanna thank every teacher,doctor and participant during this perfect experience.
